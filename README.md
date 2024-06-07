@@ -8,3 +8,4 @@ eu estudo no EE NERCY
 eu uso esse espaço para os meus estudos e apronfundamentos 
 
 ![](https://media1.tenor.com/m/7rD_finsHGEAAAAd/no-little-girl.gif)
+
